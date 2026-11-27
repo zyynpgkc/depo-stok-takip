@@ -1,0 +1,1 @@
+# depo-stok-takip
